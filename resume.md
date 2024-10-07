@@ -1,1 +1,1 @@
-I'm Sisi, a first year student at Northeastern University. Majoring in CS and BA
+I'm Sisi, a first year student at Northeastern University. Majoring in CS and BA. The expected date of my graduation will be May of 2028.
