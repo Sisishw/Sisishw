@@ -1,0 +1,1 @@
+I'm Sisi, a first year student at Northeastern University. Majoring in CS and BA
